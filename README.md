@@ -1,1 +1,1 @@
-# **f**unnsam's **i** he**x** **ed**itor
+# *f*unnsam's *i* he*x* *ed*itor
